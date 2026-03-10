@@ -1,0 +1,97 @@
+# Miley Cyrus – End of the World
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+Today you woke up and you
+told me that you wanted to cry
+The sky was fallin' like
+a comet on the Fourth of July
+Baby,
+you've been thinkin' 'bout
+the future like it's
+already yours
+Show me how you'd hold me
+if tomorrow wasn't coming
+for sure
+Let's pretend it's not the
+end of the world
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+Let's pretend it's not the
+end of the world
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+Let's spend the dollars
+you've been savin'
+on a Mercedes-Benz
+(Ah, oh)
+And throw a party like
+McCartney with some help
+from my friends
+Yeah,
+let's go down to Malibu
+and watch the sun fade out
+once more
+Show me how you'd hold me
+if tomorrow was comin' for sure
+Let's pretend it's not the
+end of the world
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+Let's pretend it's not the
+end of the world
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+(The sky is falling,
+falling like a comet now)
+(I can see it coming down)
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+(The sky is falling,
+falling like a comet now)
+Ooh, let's go to Paris,
+I don't care if we get lost
+in the scene
+Paint the city like
+Picasso would've done in
+his dreams
+Do the things that we were
+way too terrified of before
+Ooh,
+I wanna take you to Nirvana,
+we can't take it too far
+Hit the bottom of the bottle
+and forget who we are
+Hold me close,
+you know tomorrow isn't
+coming for sure
+Let's pretend it's not the
+end of the world
+Let's pretend it's not the
+end of the world
+Let's pretend it's not the
+end of the world
+Let's pretend, it's not the end
+(Let's pretend it's not the
+end of the world)
+Let's pretend
+(The sky is falling)
+it's not the end
+(Like the end of the world)
+Let's pretend, it's not the end,
+end, end
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+Let's pretend it's not the
+end of the world
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+(The sky is falling,
+falling like a comet now)
+Let's pretend it's not the
+end of the world
+Oh-oh, oh-oh, oh-oh-oh, oh-oh
+(The sky is falling,
+falling like a comet now)
+Let's pretend it's not the
+end of the world
+(The sky is falling,
+falling like a comet now)
+I can see it coming down
+```
